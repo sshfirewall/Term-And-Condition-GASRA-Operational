@@ -2,7 +2,7 @@
 Term and Conditions
 
 # Gasra Operational Term and Condition
-At Gasra Operational, accessible from (https://drive.google.com/drive/u/2/folders/14QaMtxt0r_C2CrGVypx2g8QGq1GP6eah), one of our main priorities is the privacy of our visitors. This Privacy Policy document contains types of information that is collected and recorded by Gasra Operational and how we use it.
+At Gasra Operational, accessible from (https://drive.google.com/drive/u/2/folders/14QaMtxt0r_C2CrGVypx2g8QGq1GP6eah) or https://drive.google.com/file/d/1Vls8WLPfdBIax4ZOpz6cn5TC58M-z929/view?usp=drive_link , one of our main priorities is the privacy of our visitors. This Privacy Policy document contains types of information that is collected and recorded by Gasra Operational and how we use it.
 
 If you have additional questions or require more information about our Privacy Policy, do not hesitate to contact us.
 
